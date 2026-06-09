@@ -1,4 +1,4 @@
-# 
+# bedwars secret Script is the best bedwars Script, featuring god mode and teleport. Safe and powerful for all your needs.
 
 
 
